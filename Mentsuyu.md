@@ -22,8 +22,9 @@ Let the mixture cool.
 ### Step 4
 Once at room temperature, strain the liquid and bottle it.
 
-### Bonus
-Recover the katsuobushi, dry it and you can use it as a base to make furikake.
+
 
 ## Usage
 Serve in a small bowl next to your noodles with a little green onion and finely chopped ginger.
+
+> **Bonus** Recover the katsuobushi, dry it and you can use it as a base to make furikake.
